@@ -13,3 +13,6 @@ tshirts2014/ (was just on Lizzie's computer methinks, as HU/lab/tshirt) -- most 
 
 
 I also pulled and organized: `Ordering Lab Tshirts' in Orders & Travels on google drive into this folder. 
+
+T-shirt notes on sizing for previous designs
+* Scoop neck design with Arb and UBC represented: a M measured 23 inches long and 16 inches across (my HIMB v-neck is 23 inches long and 17.5 inches across)
